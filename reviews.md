@@ -7,5 +7,7 @@ Leave your exciting reviews here as a contributor
 ### Hello!
 <br>
 
-### its good
-### irshad85 muhammedirshadp805@gmail.com
+### Effective Session
+### ARJUN K S Arjunks2112@gmail.com
+### useful 
+### ANANTHAKRISHNAN ananthu9679@gmail.com
