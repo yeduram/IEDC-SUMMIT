@@ -5,7 +5,7 @@ Leave your exciting reviews here as a contributor
 ### YOUR NAME and Email
 
 ### Hello!
-<br>
+
 
 ### Effective Session
 ### ARJUN K S Arjunks2112@gmail.com
@@ -14,7 +14,7 @@ Leave your exciting reviews here as a contributor
 ### ANANTHAKRISHNAN ananthu9679@gmail.com
 
 ###GOOD 
-###- muhammedhafizbaker@gmail.com
+###muhammedhafizbaker@gmail.com
 
 ###very good effective session
 ###- Abhijithms abhijithmadhu090
@@ -31,8 +31,8 @@ very useful
 ### Rahitha P R- good session 
 rahithapr99@gmail.com
 
-###BEEMA NASREEN 
 ###EFFECTIVE GOOD
+###BEEMA NASREEN
 
 ### very good
 ### sarath kp
@@ -56,13 +56,16 @@ useful
 
 it is very nice
 vigneshthoolika@gmail.com
+
 an interesting session
 althafabdulsalam007@gmail.com
 
-###amazing  section
+###amazing  session
 thejas
+
 ###awesome
 ### bijeesh baby bijeeshbaby99@gmail.com
+
 ### good session
 rumaizab-rumaizarassi@gmail.com
 
@@ -70,6 +73,7 @@ rumaizab-rumaizarassi@gmail.com
 
 ### awsome good..
 ###sauarv cp
+
 ###Effective session 
 Franklin Jetty Johnson
 franklinjettyjohnson6@gmail.com
@@ -77,6 +81,11 @@ franklinjettyjohnson6@gmail.com
 ###wonderful section
 hisham sha
 mail4hishamsha@gmail.com
+
+###its good
+###awesome
+###Anoop 
+
 
 ### nice event
 afthab rahman
