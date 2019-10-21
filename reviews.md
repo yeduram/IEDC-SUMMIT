@@ -20,6 +20,9 @@ Leave your exciting reviews here as a contributor
 ###- Abhijithms abhijithmadhu090
 
 ###good session 
+Sanjaycheemeni@gmail.com
+
+very useful
 ###-Sanjaycheemeni@gmail.com
 
 ###Thanks
@@ -30,23 +33,49 @@ rahithapr99@gmail.com
 
 ###BEEMA NASREEN 
 ###EFFECTIVE GOOD
+
 ### very good
 ### sarath kp
 mksarathkp97@gmail.com
+
 ### very good
 ### sarathlal s
 sarathdk400@gmail.com
+
 ### nice introduction
 ###Shahala O
 shahalachinju58@gmail.com
+
+
 ### good section
 abdulkhadhar13@gmail.com
+
 ###jaseel
 thayyil2014@gmail.com
 useful
+
+it is very nice
+vigneshthoolika@gmail.com
+an interesting session
+althafabdulsalam007@gmail.com
+
 ###amazing  section
 thejas
 ### good session
 rumaizab-rumaizarassi@gmail.com
 
 
+
+### awsome good..
+###sauarv cp
+
+###wonderful section
+hisham sha
+mail4hishamsha@gmail.com
+
+### nice event
+afthab rahman
+arn9747@gmail.com
+
+###good 
+shabeerak200@gmAIL.COM
