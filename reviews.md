@@ -94,6 +94,10 @@ arn9747@gmail.com
 ###good 
 shabeerak200@gmAIL.COM
 
+
+###nice
+Sandra K
+sandrasajeev4699@gmail.com
 ###good
 aswanthsasikumar7@gmail.com
 
@@ -106,6 +110,13 @@ naivavinay@gmail.com
 ###good
 Devaprabha P Manoj
 devaprabha1997@gmail.com
+
 ###nice
 Prathyusha v
 vprathyusha98@gmail.com
+
+###excellent!!
+lakshmimanohar12@gmail.com
+###very good
+Shahan 
+shaadashahan@gmail.com
