@@ -70,6 +70,9 @@ rumaizab-rumaizarassi@gmail.com
 
 ### awsome good..
 ###sauarv cp
+###Effective session 
+Franklin Jetty Johnson
+franklinjettyjohnson6@gmail.com
 
 ###wonderful section
 hisham sha
